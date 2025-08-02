@@ -16,7 +16,7 @@ I’m a Front End Web developer passionate about making error-free websites with
 ✅ WordPress
 ✅ JavaScript
 ✅ PHP
-✅ HTML5 / CSS3 / SASS / Bootstrap
+✅ HTML5 / CSS3/
 
 
 Top Langs
