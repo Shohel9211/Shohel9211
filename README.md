@@ -23,4 +23,4 @@ Top Langs
 facebook instagram twitter YouTube linkedin
 
 📧 For Business Inquiries
-✅ ► shovoalways@gmail.com
+✅ ► MITUSHOHEL2@GMAIL.com
